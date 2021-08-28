@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JamesAib call me LEJUMS
+- 👀 I’m interested in nothing but development
+- 🌱 I’m currently learning physichs and computer sience
+- 💞️ I’m looking to collaborate on anything that gives back to a commuinty
+- 📫 How to reach me discord JamesAib#2888
